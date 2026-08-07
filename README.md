@@ -6,8 +6,6 @@
 * 🎵 Music: **Rubber Nose** — https://soundcloud.com/rubber-nose
 * 📺 YouTube: https://www.youtube.com/@volatile86
 * 🚀 Kepler-505 — Space Engineers survival server
-* ⚙️ Building things. Breaking things. Learning things.
-
 
 
 <!---

@@ -4,6 +4,7 @@
 * 🌐 Website: https://www.shockingthesystem.com
 * 🎧 Music: **Up Into Dreams** — https://open.spotify.com/artist/00IZXZJ9RJEB3EUbEsq7BD?si=1Q5f_Q7-QweuC_jO_2PDxA
 * 🎵 Music: **Rubber Nose** — https://soundcloud.com/rubber-nose
+* 🎵 Music: **Pixel Planet** — https://soundcloud.com/grant-fractal
 * 📺 YouTube: https://www.youtube.com/@volatile86
 * 🚀 Kepler-505 — Space Engineers survival server
 

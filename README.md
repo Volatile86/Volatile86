@@ -1,4 +1,5 @@
 <!-- ![alt text](http://temporalsoftware.com/assets/tempSoftwareText1.png) -->
+Be who you are. There's too many people trying to be someone else.
 * ✍️ Writer | 🎸 Musician | 🎬 Filmmaker | 🧠 Armchair Philosopher | 🗣️ Guy who gets fired for asking too many questions.
 * 📫 Contact: [volatile86@gmail.com](mailto:volatile86@gmail.com)
 * 📺 YouTube: https://www.youtube.com/@volatile86

@@ -1,5 +1,5 @@
 <!-- ![alt text](http://temporalsoftware.com/assets/tempSoftwareText1.png) -->
-* ✍️ Writer | 🎸 Musician | 🎬 Filmmaker | 🧠 Armchair Philosopher | 🗣️ Fired by Paragould Municipal Utilities for asking too many questions
+* ✍️ Writer | 🎸 Musician | 🎬 Filmmaker | 🧠 Armchair Philosopher | 🗣️ Guy who gets fired for asking too many questions.
 * 📫 Contact: [volatile86@gmail.com](mailto:volatile86@gmail.com)
 * 📺 YouTube: https://www.youtube.com/@volatile86
 * 🌐 Website: https://www.shockingthesystem.com
